@@ -7,5 +7,3 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 
 laracangane@email.com
-
-![https://www.google.com/url?sa=i&url=https%3A%2F%2Fgifdb.com%2Fventi&psig=AOvVaw3aOrjfuWMAxmjfrO_8FDu-&ust=1722448894843000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCIjMlqGsz4cDFQAAAAAdAAAAABAJ](link)
