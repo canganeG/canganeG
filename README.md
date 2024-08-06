@@ -8,4 +8,5 @@ Você pode entrar em contato comigo 📫
 
 laracangane@email.com
 
-![https://media1.tenor.com/m/xz3-pM8-GtIAAAAd/venti-genshin-impact-venti.gif](link)
+![](https://media1.tenor.com/m/xz3-pM8-GtIAAAAd/venti-genshin-impact-venti.gif)
+
