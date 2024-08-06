@@ -7,3 +7,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 Você pode entrar em contato comigo 📫
 
 laracangane@email.com
+https://media1.tenor.com/m/xz3-pM8-GtIAAAAd/venti-genshin-impact-venti.gif
